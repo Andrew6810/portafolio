@@ -11,4 +11,4 @@
 
 * Andrey Leguizamo
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/](https://www.linkedin.com/in/andrey-felipe-leguizamo-cespedes-9007302b5/
+### Linkedin: https://www.linkedin.com/in/andrey-felipe-leguizamo-cespedes-9007302b5/
